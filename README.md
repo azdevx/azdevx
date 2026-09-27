@@ -1,4 +1,4 @@
-# Hey, I'm Azeddine 👋
+# Hey, I'm AzDevX 👋
 
 ### 1337 Student • Developer • Builder
 
